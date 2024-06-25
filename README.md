@@ -4,7 +4,7 @@
 
 ![image](https://github.com/kekkiie/kekkiie/assets/47456855/ad95b80a-abf0-458a-80fb-0098ca7216be) ![image](https://s7.ezgif.com/tmp/ezgif-7-7ac724da06.webp) ![image](https://s4.ezgif.com/tmp/ezgif-4-9ae681d37f.gif) ![image](https://s4.ezgif.com/tmp/ezgif-4-e8634be375.webp)  ![image](https://pix.crd.co/assets/images/gallery24/98579c20_original.png?v=cf5fcef5)
 
-![image](https://pix.crd.co/assets/images/gallery09/86ada533.gif?v=cf5fcef5) 
+![image](https://imagehost9.online-image-editor.com/oie_upload/images/252127115n6TNKE/z9hjj2kZ7Hna.png) ![image](https://pix.crd.co/assets/images/gallery09/86ada533.gif?v=cf5fcef5) 
  
  ![image](https://autism.crd.co/assets/images/gallery01/e8d15dfb.gif?v=69d6a439)  
    
