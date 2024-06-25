@@ -8,7 +8,7 @@
  
  ![image](https://autism.crd.co/assets/images/gallery01/e8d15dfb.gif?v=69d6a439)  
    
-   ![pony-town-geto ⋆ ⊹-fly-blinking-padded-4x](https://github.com/kekkiie/salsa-y-picante/assets/47456855/a1c5597f-2b33-46e5-89be-6d4466f496fa) 
+   ![pony-town-geto ⋆ ⊹-fly-blinking-padded-4x](https://github.com/kekkiie/salsa-y-picante/assets/47456855/a1c5597f-2b33-46e5-89be-6d4466f496fa)
                       ![alt-text-2](https://64.media.tumblr.com/1c6f550a543238da05d0cea952bc23fa/318f07d8169afa29-b0/s400x600/80e4a32c272e96e87ef83ce5f5ae0c6dcbbdc731.gifv)
 
  _(my geto skin on pony town, also most used)_
