@@ -1,4 +1,4 @@
-![image](https://media.discordapp.net/attachments/1273727129884037193/1287420076294803537/IMG_2444.png?ex=66f17ae1&is=66f02961&hm=59ea1c54afa624efdc77d05ae906c5da35f1f5bc8ccea0f3993e86daf2755345&=&format=webp&quality=lossless&width=300&height=300) 
+
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1273727129884037193/1287420076294803537/IMG_2444.png?ex=66f17ae1&is=66f02961&hm=59ea1c54afa624efdc77d05ae906c5da35f1f5bc8ccea0f3993e86daf2755345&=&format=webp&quality=lossless&width=300&height=300" />
 </p>
