@@ -5,7 +5,7 @@
  ┈┈・୨ ✦ ୧・┈┈ 
 </p>
 <p align="center">
-  <img src="https://i.postimg.cc/XYLnkN2j/IMG-2444.png" />
+  <img src="https://i.postimg.cc/XYLnkN2j/IMG-2444.png" width="300" height="300" />
 </p>
 <p align="center">
  Perhαps 𝐭𝐨𝐧𝐢𝐠𝐡𝐭 𝐥𝐨𝐨𝐤𝐬 𝐬𝐨 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥  
