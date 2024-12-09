@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/Vksh3sVV/Untitled33-20241209224530.png" />
 </p>
 <p align="center">
-  <img src="https://i.postimg.cc/nzsbNVCJ/Untitled32-20241209223528.png" width="500" height="500" />
+  <img src="https://i.postimg.cc/nzsbNVCJ/Untitled32-20241209223528.png" width="300" height="300" />
 </p>
 
 
