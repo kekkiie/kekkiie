@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://i.postimg.cc/PrHfvZCv/phonto.png" width="700" height="700" />
+  <img src="https://i.postimg.cc/PrHfvZCv/phonto.png" width="600" height="600" />
 </p>
 
 <p align="center">
